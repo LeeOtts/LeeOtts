@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LeeOtts
-- 👀 I’m interested in learning how to use github
-- 🌱 I’m currently learning front end
+
+  3D printing is my job and life
 
 <!---
 LeeOtts/LeeOtts is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
