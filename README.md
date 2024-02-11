@@ -8,7 +8,7 @@ My passion for 3D printing led me to discover a 3D printing company nearby. Afte
 
 The interview process was a culmination of dedication, detailed preparation, and a touch of creativity. The discussions and tour fueled my excitement for the position. The journey unfolded with a heartfelt thank-you email, and, to my delight, I received a job offer.
 
-Working at fbrc8 was an incredible experience. I absorbed knowledge from my coworkers, gaining insights into the intricacies of 3D printers and their systems. I discovered that both affordable and expensive machines face similar challenges because, at its core, 3D printing is about XYZ and E.
+Working there was an incredible experience. I absorbed knowledge from my coworkers, gaining insights into the intricacies of 3D printers and their systems. I discovered that both affordable and expensive machines face similar challenges because, at its core, 3D printing is about XYZ and E.
 
 My time there was invaluable, but as the company closed its doors, a new chapter began for me. Now, I'm excited to continue my journey, armed with the skills and passion for 3D printing.
 
